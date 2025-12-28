@@ -1,7 +1,2 @@
-<p align="center"
+im 2 lazy to make a theme for thsi just check out my main account ok 👍👍👍👍👍
 
-![](https://file.garden/aMn-jzbg43nKL-ik/Untitled1090_20251129110654.png)
-<p align="center"
-
-  art by whitetea2007 on twt
-  <p align="center"
